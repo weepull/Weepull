@@ -14,7 +14,7 @@
 ---
 
 ### 🔗Resume  
-**Resume:** [https://your-resume-link.com](https://drive.google.com/file/d/1BdEaNd29hSoTGtGceumBZm9rTLO0A4hZ/view?usp=sharing)
+**Resume:** [https://my-resume-link.com](https://drive.google.com/file/d/1bAg0J2FUjFl4j79vc29-xq5ddmlyIVnP/view?usp=sharing)
 ---
 
 ### 🌐 Connect with Me  
